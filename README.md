@@ -8,8 +8,6 @@ My Shop 💲 [DRP Shop](https://desordenrp.tebex.io/)
 - 👯 I’m looking to collaborate on any script I can.
 - 💬 Ask me about whatever you want
 - 📫 How to reach me: [Discord](https://www.discord.gg/xSQjGh66vP)
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 
 ![](https://komarev.com/ghpvc/?username=zorbaxx)
 
