@@ -2,7 +2,7 @@
 
 Spanish teen with lots of projects
 
-My Shop 💲 [DRP Shop](https://desordenrp.tebex.io/)
+My Shop 💲 [Zorbax Scripts](https://zrbscripts.tebex.io)
 
 - 🌱 I’m currently learning LUA.
 - 👯 I’m looking to collaborate on any script I can.
